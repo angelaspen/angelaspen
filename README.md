@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=angelaspen&color=663399&label=crewmates)
 
+$\text{\color{#663399}( also , red cosplays PLS int / c + h . )}$
+
 <p align="center">
 $\text{\color{#663399}𝄞─ ─ ─ ─ ─ ─ ─ ─ ─ ─ ─𝄞}$
 </p>
