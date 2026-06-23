@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=angelaspen&color=663399&label=crewmates)
+
 <p align="center">
 $\text{\color{#663399}𝄞─ ─ ─ ─ ─ ─ ─ ─ ─ ─ ─𝄞}$
 </p>
@@ -40,4 +42,4 @@ $\text{\color{#663399}〃 pls pls pls sign ata ok ? ok . also sign straw while u
 
 <img width="2500" height="250" alt="tumblr_07aecfc596a4a0d34a546edb78ce7f46_ff49198e_2048" src="https://github.com/user-attachments/assets/7b47eb2b-0120-4319-9287-8accd0d016cd" />
 
-![](https://komarev.com/ghpvc/?username=angelaspen&color=663399)
+
