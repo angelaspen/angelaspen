@@ -7,7 +7,8 @@ $\text{\color{#663399}𝄞─ ─ ─ ─ ─ ─ ─ ─ ─ ─ ─𝄞}$
 </p>
 
 <p align="center">
-$\text{\color{#663399}ᵃᵐᵒⁿᵍ ᵘˢ ˢʰᵒʷ ʷᵃᵗᶜʰᵉᵈ ¹⁶ ᵗᶦᵐᵉˢ ! }$
+$\text{\color{#663399}ᵃᵐᵒⁿᵍ ᵘˢ ˢʰᵒʷ ʷᵃᵗᶜʰᵉᵈ ²²
+ ᵗᶦᵐᵉˢ ! }$
 </p>
 
 <p align="center">
@@ -17,11 +18,11 @@ $\text{\color{#663399}ᵃᵐᵒⁿᵍ ᵘˢ ˢʰᵒʷ ʷᵃᵗᶜʰᵉᵈ ¹⁶ 
 <img width="2048" height="250" alt="tumblr_d5dcf5807d33e33e17461f4b13568e35_d8b97e0e_2048" src="https://github.com/user-attachments/assets/44f25260-899f-42e7-9b20-c6487373892d" />
 
 <p align="center">
-$\text{\color{#663399}〃 hi , i ' m felix , aspen , juno , thim , wtv}$
+$\text{\color{#663399}〃 hi , i ' m aspen , purple , juno , or uzi }$
 </p>
 
 <p align="center">
-$\text{\color{#663399}〃 i use it / she but any is fine .}$
+$\text{\color{#663399}〃 i use she / him but any is fine .}$
 </p>
 
 <p align="center">
@@ -29,17 +30,17 @@ $\text{\color{#663399}〃 we are a system , but usually refer to ourselves as i 
 </p>
 
 <p align="center">
-$\text{\color{#663399}〃 i ' m lesbian , nonbinary , genderfluid , and aroace . }$
+$\text{\color{#663399}〃 i ' m a purple fullfic , doubles are okay just iwc }$
 </p>
 
 <p align="center">
-$\text{\color{#663399}〃 please always iwec , i have bpd , audhd , and heavy anxiety + paranoia . }$
+$\text{\color{#663399}〃 please always iwec because i have bad paranoia and anxiety . }$
 </p>
 
 <img width="1057" height="576" alt="IMG_8320" src="https://github.com/user-attachments/assets/f26e09c2-2e28-43c3-9a71-3e9cdde8435b" />
 
 <p align="center">
-$\text{\color{#663399}〃 pls pls pls sign ata ok ? ok . also sign straw while ur at it }$
+$\text{\color{#663399}〃 links wip }$
 </p>
 
 <img width="2500" height="250" alt="tumblr_07aecfc596a4a0d34a546edb78ce7f46_ff49198e_2048" src="https://github.com/user-attachments/assets/7b47eb2b-0120-4319-9287-8accd0d016cd" />
